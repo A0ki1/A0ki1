@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @A0ki1
+- 👀 I’m interested in CyberSecurity
+- 🌱 I’m currently Studying 
+- 💞️ I’m looking to collaborate on Proyects
+- 📫 How to reach me: Magatst432@gmail.com
